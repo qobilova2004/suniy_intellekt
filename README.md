@@ -1,0 +1,2 @@
+# suniy_intellekt
+malumotlar
